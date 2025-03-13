@@ -35,7 +35,6 @@
     Using the Crazybulk Cutting Stack is very simple. Just follow the dosage instructions provided on the packaging. For best results, combine it with a healthy diet and a workout plan that includes both cardio and strength training. Don’t forget to drink plenty of water and get enough rest, as these habits support your overall transformation.
   </p>
   
-  <div class="faq-section">
     <h2>Frequently Asked Questions (FAQs)</h2>
     
     <h3>What is a prohormone for cutting?</h3>
@@ -62,4 +61,3 @@
     <p>
       Yes, beginners can use the Crazybulk Cutting Stack. Its easy-to-follow dosage and natural formula make it a popular choice for anyone starting their cutting cycle.
     </p>
-  </div>
