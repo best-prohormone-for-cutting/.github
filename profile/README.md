@@ -34,30 +34,30 @@
   <p>
     Using the Crazybulk Cutting Stack is very simple. Just follow the dosage instructions provided on the packaging. For best results, combine it with a healthy diet and a workout plan that includes both cardio and strength training. Don’t forget to drink plenty of water and get enough rest, as these habits support your overall transformation.
   </p>
-  
-    <h2>Frequently Asked Questions (FAQs)</h2>
+
+<h2>Frequently Asked Questions (FAQs)</h2>
     
-    <h3>What is a prohormone for cutting?</h3>
+<h3>What is a prohormone for cutting?</h3>
     <p>
       A prohormone for cutting is a type of supplement that helps increase your body’s natural hormones. It works to burn fat, support lean muscle, and boost energy levels during your cutting cycle.
     </p>
     
-    <h3>Why is the Crazybulk Cutting Stack a good choice?</h3>
+<h3>Why is the Crazybulk Cutting Stack a good choice?</h3>
     <p>
       The Crazybulk Cutting Stack is a great choice because it uses natural ingredients to help burn fat and maintain muscle. It offers a safe alternative to harsher substances and fits well into a healthy lifestyle.
     </p>
     
-    <h3>How do I use the Crazybulk Cutting Stack?</h3>
+<h3>How do I use the Crazybulk Cutting Stack?</h3>
     <p>
       Simply follow the instructions on the packaging. Combine the supplement with a balanced diet and regular exercise for the best results.
     </p>
     
-    <h3>Are there any side effects?</h3>
+<h3>Are there any side effects?</h3>
     <p>
       Since the Crazybulk Cutting Stack is made from natural ingredients, most users experience minimal side effects. However, it is important to follow the usage instructions carefully and consult a health professional if you have any concerns.
     </p>
     
-    <h3>Can beginners use this supplement?</h3>
+<h3>Can beginners use this supplement?</h3>
     <p>
       Yes, beginners can use the Crazybulk Cutting Stack. Its easy-to-follow dosage and natural formula make it a popular choice for anyone starting their cutting cycle.
     </p>
