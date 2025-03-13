@@ -18,7 +18,7 @@
     <li><strong>Lean Muscle Support:</strong> Helps maintain muscle mass even while you are in a calorie deficit.</li>
     <li><strong>Natural Ingredients:</strong> Uses plant-based components that work gently with your body.</li>
     <li><strong>Increased Energy:</strong> Raises energy levels, so you can enjoy longer and more effective workouts.</li>
-    <li><strong>Easy to Use:</strong> Comes in a simple stack format that easily fits into your daily routine.</li>
+    <li><strong>Easy to Use:</strong> Comes in a simple <a href="https://github.com/best-prohormone-stacks">prohormone stack</a> format that easily fits into your daily routine.</li>
   </ul>
   
   <h2>How Does the Crazybulk Cutting Stack Work?</h2>
